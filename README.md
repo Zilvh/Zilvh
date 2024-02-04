@@ -1,4 +1,4 @@
-# 🌟 Nama Proyek Anda 🌟
+# 🌟Web Kelas  🌟
 
 Selamat datang di Projec Website Kelas - Tujuan Kita membuat webiste ini Agar dapat Mneghasilkan Cuan And belajar.
 
